@@ -8,7 +8,7 @@
 
 - 👩‍💻 B.Tech in **Computer Science and Engineering**  
 - 💡 Competitive Programming Enthusiast  
-- 📫 How to reach me **srushtigarad07@gmail.com**  
+- 📫 How to reach me **srushtigarad0@gmail.com**  
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
